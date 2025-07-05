@@ -21,4 +21,4 @@
 
 如果你正在寻找一个稳定、高清、永久免费的日本AV资源站，本站将是你最可靠的选择。我们每天都在不断更新资源，致力于为你提供最丰富、最优质的日本AV内容。只需一键点击，即可畅享精彩无极限的观影时光。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg57687/204544 ）</span>
